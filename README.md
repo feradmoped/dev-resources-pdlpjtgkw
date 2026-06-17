@@ -7,6 +7,7 @@
 - https://sites.google.com/view/kzl16yn5tmqhyqr1um
 - https://sites.google.com/view/w4g07t8r51z5oyw9ed
 - https://sites.google.com/view/hrcnkpm50s17wf54ly
+- http://43.133.171.72/c/dev-resources-pdlpjtgkw
 - https://sites.google.com/view/q8qgg8rsyjh8ig7a35
 - https://sites.google.com/view/oqdeikzpfgn3prbj4e
 - https://sites.google.com/view/pbnv5olb7idnfgjubh
@@ -22,6 +23,7 @@
 - https://sites.google.com/view/hzbf3eo4ym59u9zmog
 - https://sites.google.com/view/cmatvklyv868jg13ld
 - https://sites.google.com/view/em0mwylr2f8dornram
+- http://43.133.171.72/c/dev-resources-pdlpjtgkw
 - https://sites.google.com/view/ss51r9wejso8e8lqtn
 - https://sites.google.com/view/k29s7akv8jypb3ddh9
 - https://sites.google.com/view/jnnfg48pgu7uboo7hl
@@ -39,6 +41,7 @@
 - https://sites.google.com/view/z23ic92q1j1jdkbnwc
 - https://sites.google.com/view/v3mlj67p9jpc72wcqu
 - https://sites.google.com/view/qgh5pt1umje28wm2av
+- http://43.133.171.72/c/dev-resources-pdlpjtgkw
 - https://sites.google.com/view/sv0ne9sh92iuduwk0x
 - https://sites.google.com/view/q1rwtirfo0cnrbxc2d
 - https://sites.google.com/view/dk0655n2ut0yhzmgaf
@@ -63,7 +66,6 @@
 - https://sites.google.com/view/sglpc5n2d3x9lsfduy
 - https://sites.google.com/view/tfom3d6d1mxcxitigw
 - https://sites.google.com/view/e6nf3hkozlzf963ccs
-- http://c.kfmail.top/c/dev-resources-pdlpjtgkw
 - https://sites.google.com/view/fi3apiuywfztstvl0y
 - https://sites.google.com/view/ze0n8oqhhx18w8jkz7
 - https://sites.google.com/view/gfp1wq8die66chjhc7
@@ -98,7 +100,6 @@
 - https://sites.google.com/view/mzx9civ0sgheattknm
 - https://sites.google.com/view/c3ftdmsch7muat67sk
 - https://sites.google.com/view/oip5xa1pajhnm7a1kh
-- http://c.kfmail.top/c/dev-resources-pdlpjtgkw
 - https://sites.google.com/view/xqln92rmvqz8oumru6
 - https://sites.google.com/view/bohzzdv4o61uqlfmcy
 - https://sites.google.com/view/ezbdm0x4mkevtxlv6u
@@ -120,7 +121,6 @@
 - https://sites.google.com/view/m0qiivzq2oq8plynkd
 - https://sites.google.com/view/tvrvlrh6v5eqgef89d
 - https://sites.google.com/view/dkztilx5xg3oa2vx8k
-- http://c.kfmail.top/c/dev-resources-pdlpjtgkw
 - https://sites.google.com/view/wnrhev2uxltpo9gw34
 - https://sites.google.com/view/nmjeu0flwrctq3b0uk
 - https://sites.google.com/view/a3fzgv9h52gvlefl5p
